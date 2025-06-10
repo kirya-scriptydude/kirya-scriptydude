@@ -3,6 +3,8 @@
 - **living in russia**
 - **s&box enthusiast**
 - **just a bum**
+---
+yt blog **///** https://www.youtube.com/@kirya-realny
 
-yt blog - https://www.youtube.com/@kirya-realny
+discord **///** *@scriptydude*
 
